@@ -1,1 +1,2 @@
 # Leading-Indicators-to-Increase-Winning-Propensity-in-AVP-Women-s-Beach-Volleyball
+The purpose of this study was to explore the relationship between performance indicators and the propensity of winning, aiming to help young athletes who want to enter AVP and start their professional journey by giving recommendations and practicable advice on how they should set their practice goals and what to improve.
